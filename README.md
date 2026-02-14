@@ -1,0 +1,1 @@
+# Manual-trading-agi-app
